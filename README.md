@@ -1,2 +1,0 @@
-# hackingtolls
-bapak kau
